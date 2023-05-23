@@ -4,3 +4,4 @@ It’s not using more them 5 month for now.
 If u take care about detention
 I can give guaranteed u, about 5 month without detection
 If detect = free updates
+video : https://share.vidyard.com/watch/HCB6Du8KbtQrGc6z56dqUS?
